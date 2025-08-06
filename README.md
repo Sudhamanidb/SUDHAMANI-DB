@@ -21,4 +21,4 @@
 ---
 
 🤝 I'm open to collaborating on **beginner-level web development and software projects**  
-📫 **How to reach me:** [LinkedIn](www.linkedin.com/in/sudhamani-db-2380b7259)  
+📫 **How to reach me:** [LinkedIn](https://www.linkedin.com/in/sudhamani-db-2380b7259)  
